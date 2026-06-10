@@ -1,4 +1,4 @@
-# 
+# Melhor trader joe trading bot extensões para Mac OS | Premium trader joe trading bot extensões para PC Windows. Com algoritmos de scalping e API de exchange centralizada — otimizado para máximo desempenho em cada plataforma.
 
 
 
